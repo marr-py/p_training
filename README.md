@@ -1,2 +1,2 @@
 # p_training
-training 2nd attempt
+training 2nd attempt. Keepin'. :-)
